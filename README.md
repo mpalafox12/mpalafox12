@@ -9,12 +9,11 @@ cosas nuevas y siempre termino encontrando un hobby diferente.**
 - Branding
 - Publicidad
 - Cultura POP
-
-  *"Te juro que la tipografía que elegí tiene justificación"*
-
-- Soy fan de **Justin Bieber.**
+- Fan #1 de **Justin Bieber.**
 - Me encanta leer.
-- Tengo mil hobbies (TDAH jaja).
+- Amante del crochet.
+
+ *"Te juro que la tipografía que elegí tiene justificación"*
 
   Pinterest (https://pin.it/4tbNNRfAw)
   Instagram (https://www.instagram.com/mf.palafox/?hl=es)
